@@ -3755,12 +3755,6 @@ STEP IV: Finding out modifiers → adverb of definite time after `by + agent`, o
 ## End of page 91 / 170
 
 Lộ trình học
-CHƯƠNG TRÌNH GIẢNG DẠY TỐI ƯU (3 THÁNG)
-Tổng quan:
-Thời lượng: 12 tuần × 3 buổi/tuần × 1.5 giờ = 54 giờ
-Mục tiêu: Xây dựng nền tảng vững về phát âm, ngữ pháp cơ bản, và 4 kỹ năng
-Phương pháp: 30% lý thuyết, 70% thực hành 
-ies.ed.gov
 THÁNG 1: NỀN TẢNG (FOUNDATION)
 Tuần 1-2: PHÁT ÂM & TỪ LOẠI CƠ BẢN
 Buổi 1 (Week 1, Day 1):
